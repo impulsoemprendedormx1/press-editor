@@ -12,7 +12,7 @@ Dí cómo será ese paso
 
 Algunas webs permitidas para realizar la acción:
 
-https://sevilla24h.com/ https://malaga-24h.com/ https://palencia24h.com/ https://sansebastian24h.com/ https://cadiz24h.com/ https://asturias24h.com/ https://lacronicasiete.com/ https://larioja24h.com/ https://monserratenoticias.co/ https://medellinaldia.co/ https://somospais.co/ https://diarioindependencia.co/ https://lacostaopina.co/ https://elinformado.co/ https://informativocolombia.com/ https://americafinanzas.co/ https://www.prensainforma.cl/ https://www.alertamexico.mx/ https://www.confines.es/ http://digitalestrella.com/
+https://sevilla24h.com/ https://malaga-24h.com/ https://palencia24h.com/ https://sansebastian24h.com/ https://cadiz24h.com/ https://asturias24h.com/ https://lacronicasiete.com/ https://larioja24h.com/ https://monserratenoticias.co/ https://medellinaldia.co/ https://somospais.co/ https://diarioindependencia.co/ https://lacostaopina.co/ https://elinformado.co/ https://informativocolombia.com/ https://americafinanzas.co/ https://www.prensainforma.cl/ https://www.alertamexico.mx/ https://www.confines.es/
 
 Da un ejemplo Y repite
 
