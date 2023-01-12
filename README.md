@@ -12,7 +12,7 @@ Dí cómo será ese paso
 
 Algunas webs permitidas para realizar la acción:
 
-https://sevilla24h.com/ https://malaga-24h.com/ https://palencia24h.com/ https://sansebastian24h.com/ https://cadiz24h.com/ https://asturias24h.com/ https://lacronicasiete.com/ https://larioja24h.com/ https://monserratenoticias.co/ https://medellinaldia.co/ https://somospais.co/ https://diarioindependencia.co/ https://lacostaopina.co/ https://elinformado.co/ https://informativocolombia.com/ https://americafinanzas.co/ https://www.prensainforma.cl/ https://www.alertamexico.mx/ https://www.confines.es/ https://www.temporecife.com/ https://www.realidadebelohorizonte.com/ https://www.visaodosul.com/ https://www.amanecerciudadano.mx/ https://www.imperiofinanciero.mx/ https://www.informativocidadao.com/
+https://sevilla24h.com/ https://malaga-24h.com/ https://palencia24h.com/ https://sansebastian24h.com/ https://cadiz24h.com/ https://asturias24h.com/ https://lacronicasiete.com/ https://larioja24h.com/ https://monserratenoticias.co/ https://medellinaldia.co/ https://somospais.co/ https://diarioindependencia.co/ https://lacostaopina.co/ https://elinformado.co/ https://informativocolombia.com/ https://americafinanzas.co/ https://www.prensainforma.cl/ https://www.alertamexico.mx/ https://www.confines.es/ https://www.temporecife.com/ https://www.realidadebelohorizonte.com/ https://www.visaodosul.com/ https://www.amanecerciudadano.mx/ https://www.imperiofinanciero.mx/ https://www.informativocidadao.com/ https://www.elitesaopaulo.com https://www.empreendedordigitalbrasil.com
 
 Da un ejemplo Y repite
 
